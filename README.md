@@ -4,3 +4,6 @@ https://bom.firpo.ru/Public/86
 ![image](https://github.com/user-attachments/assets/0df407b0-bcd4-457b-9c9d-92b82eabb10a)
 Страница 23 пример задания.
 Доска: https://ru.yougile.com/team/93aa605022f1/DemExm
+
+
+clck.ru/3D4mu9
