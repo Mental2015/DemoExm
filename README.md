@@ -6,4 +6,5 @@ https://bom.firpo.ru/Public/86
 Доска: https://ru.yougile.com/team/93aa605022f1/DemExm
 
 
-clck.ru/3D4mu9
+
+
